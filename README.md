@@ -19,5 +19,5 @@
 - Sonho em construir uma casa e estou a planear cada detalhe dela ✨
 
 ### 📫 Onde me encontrar:
-- [LinkedIn](#) (se ainda não tens, posso te ajudar a criar um)
-- [Email](#)
+- [LinkedIn](https://www.linkedin.com/in/franciscapintocardoso/)
+- [Email](franciscapintocardoso93@gmail.com)
